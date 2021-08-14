@@ -1,1 +1,1 @@
-# truck corp. 
+# truck corp
